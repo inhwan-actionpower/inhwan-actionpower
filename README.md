@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @inhwan-actionpower
-- 👀 I’m interested in you.
-- 🌱 I’m currently learning how to avoid from the world.
+- 👀 I’m interested in everything.
+- 🌱 I’m currently learning how to escape from the world.
 - 💞️ I’m looking to collaborate on projects that aim to make our company successful. 
 - 📫 How to reach me: just drop me an email at inhwan.kim@actionpower.kr
 
